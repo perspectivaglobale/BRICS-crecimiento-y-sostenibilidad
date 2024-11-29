@@ -1,1 +1,2 @@
 # BRICS-crecimiento-y-sostenibilidad
+El avance de los BRICS redefine la economía global, pero su impacto ambiental también crece. Con un consumo intensivo de recursos y altas emisiones, estos países enfrentan el reto de equilibrar progreso y sostenibilidad. Implementar políticas innovadoras y energías renovables será clave para liderar el cambio hacia un desarrollo responsable que beneficie tanto a su población como al planeta.
